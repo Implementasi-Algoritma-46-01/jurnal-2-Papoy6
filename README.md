@@ -1,8 +1,8 @@
-## Identitas
+## Adam Zakky Maulana
 
-Nama: 
+Nama: Adam Zakky Maulana
 
-NIM : 
+NIM : 607062400006
 
 ## Instruksi
 
